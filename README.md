@@ -1,0 +1,2 @@
+# Bismark-Amoo-gyimah
+tech
